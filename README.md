@@ -1,4 +1,4 @@
-May your weapon be guarded against malfunction,
+May your tools be guarded against malfunction,
 
 As your soul is guarded from impurity.
 
