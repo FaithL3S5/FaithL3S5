@@ -6,4 +6,4 @@ The Machine God watches over you.
 
 ==== Cross Your Heart and Hope to Die ====
 
-    ˢʰᵒᵒᵗ ᵃ ᵇᵘˡˡᵉᵗ ᵗʰʳᵒᵘᵍʰ ʸᵒᵘʳ ᵉʸᵉˢ
+    ˢʰᵒᵒᵗ ᵃ ᵇᵘˡˡᵉᵗ ᵗʰʳᵒᵘᵍʰ ʸᵒᵘʳ ᵉʸᵉ
