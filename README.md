@@ -1,7 +1,4 @@
-May your tools be guarded against malfunction,
+💼 Cyber Janitor (Self-Proclaimed). 🎂 As old as time itself. 🧘 Faithfully Faithless.
 
-As your soul is guarded from impurity.
 
-The Machine God watches over you.
-
-May The Omnissiah Blesses Your Way.
+🤖 May The Omnissiah Blesses Your Way. 🤖
